@@ -1,1 +1,1 @@
-# Newbeedss.github.io
+# Newbeeds.github.io
